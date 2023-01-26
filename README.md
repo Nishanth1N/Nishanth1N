@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+My name is Nishanth
+
+🌱 I’m currently pursuing my B.E from NMAM Institute of technology, Nitte
+
+📫 How to reach me: LinkedIn -> https://www.linkedin.com/in/nishanth-46a68a21b/
